@@ -1,0 +1,6 @@
+- 👋 Salut! Je suis @Sleqzy
+- 👀 Je suis beaucoup interresser dans l'informatique,programming
+- 🌱 Je debute le coding
+- 💞️ J'aimerai collaborer pour programmer un site,jeu ou app
+- 📫 Pour me contacter voila mon discord :Wisox#3712
+-    J'ai 12 ans
